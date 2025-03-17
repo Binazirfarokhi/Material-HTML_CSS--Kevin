@@ -7,3 +7,9 @@ face 2025 :
 https://www.loom.com/share/folder/0022ffb592084f7e92c614feaf0469c2
 week 2 assigment: Eatary
 https://www.loom.com/share/f8db32b254254ae49efd7c58c252f7fe?sid=29c6bcc9-9930-4bd5-8e84-7c396829200d
+Jazz :
+https://wrmf.ca/posts/jazzicons-html-mockup-exercise/
+https://www.loom.com/share/folder/05d8b635ae2540599baaf871f976b44a
+subgrid demonstrarion: 
+https://www.loom.com/share/folder/22f787f532b648d09d0df91e2aad3864
+https://www.loom.com/share/folder/e3c7d54616934cd28b63ebc88c789057
